@@ -1,2 +1,2 @@
-### I make code ™™
+### I make code™
 https://nfzxm.uk
