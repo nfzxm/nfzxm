@@ -1,2 +1,2 @@
-### I Make Code™
+### I Make Code
 https://nfzxm.uk 🐧
